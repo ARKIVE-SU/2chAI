@@ -20,8 +20,8 @@
 | [14](2-2022-nai/14_kiborg.jpg) | 2022-nai | Девушка-киборг в шлеме | [arhivach 844723](https://arhivach.vc/thread/844723/) — NovelAI & WaifuDiffusion тред (/b/) |
 | [15](2-2022-nai/15_zakat-na-kryshe.jpg) | 2022-nai | Закат на крыше, руки в стороны | [arhivach 844657](https://arhivach.vc/thread/844657/) — NovelAI & WaifuDiffusion тред (/b/) |
 | [16](2-2022-nai/16_zima-v-shapke.jpg) | 2022-nai | Зимняя девочка в шапке | [arhivach 844574](https://arhivach.vc/thread/844574/) — NovelAI & WaifuDiffusion тред (/b/) |
-| [17](3-2023/17_ekranchiki-nai-thread-blue.jpg) | 2023 | «NAI THREAD» — шаблон с мониторами («экранчики»), синий | [arhivach 920507](https://arhivach.vc/thread/920507/) — NAI-тред #103 (/ai/) |
-| [18](3-2023/18_ekranchiki-nai-thread-green.jpg) | 2023 | «NAI THREAD» — шаблон с мониторами («экранчики»), зелёный | [arhivach 918365](https://arhivach.vc/thread/918365/) — NAI-тред #102 (/ai/) |
+| [17](3-2023/17_ekranchiki-nai-thread-blue.jpg) | 2023 | «NAI THREAD» — «экранчики»: шаблон шапки, придуманный Пчёлом (лучшие работы прошлого треда на мониторах), синий | [arhivach 920507](https://arhivach.vc/thread/920507/) — NAI-тред #103 (/ai/) |
+| [18](3-2023/18_ekranchiki-nai-thread-green.jpg) | 2023 | «NAI THREAD» — «экранчики» Пчёла, зелёный | [arhivach 918365](https://arhivach.vc/thread/918365/) — NAI-тред #102 (/ai/) |
 | [19](3-2023/19_lisy-stroiteli.jpg) | 2023 | Лисы-строители в касках | [arhivach 920507](https://arhivach.vc/thread/920507/) — NAI-тред #103 (/ai/) |
 | [20](3-2023/20_lisya-s-hvostom.jpg) | 2023 | Лисодевочка с хвостом (Лись-вайб) | [arhivach 920507](https://arhivach.vc/thread/920507/) — NAI-тред #103 (/ai/) |
 | [21](3-2023/21_koshka-na-dereve.jpg) | 2023 | Кошкодевочка на дереве (Кот-вайб) | [arhivach 920507](https://arhivach.vc/thread/920507/) — NAI-тред #103 (/ai/) |
